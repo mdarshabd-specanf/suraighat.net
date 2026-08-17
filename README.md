@@ -9,7 +9,7 @@ Official Website of Suraighat Net ISP.
 
 ## Contact Info
 📞 01824-943000  
-📍 Suraighat Bazar, Kaliganj, Bangladesh
+📍 Suraighat Bazar, Kanaighat, Sylhet, Bangladesh
 
 ## About
 Suraighat Net is a trusted Internet Service Provider delivering high-speed and reliable broadband services.
